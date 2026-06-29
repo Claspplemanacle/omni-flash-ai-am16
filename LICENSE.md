@@ -1,4 +1,4 @@
-# 
+# Automatic Omni Flash presets. Featuring knowledge-graphs and scalable-architecture — optimized for maximum performance and efficiency.
 
 
 
